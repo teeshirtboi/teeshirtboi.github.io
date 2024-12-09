@@ -1,5 +1,5 @@
 
 #AppleSoda
 
-![AppleSoda](https://imgur.com/tQaLBD2).
+[AppleSoda](https://imgur.com/tQaLBD2)
 
